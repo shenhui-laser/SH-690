@@ -5,11 +5,17 @@ http://www.lcshenhuilaser.com/690-laser-cutting-and-engraving-machine-pd294104.h
 
 
 CE / FDA/ ISO Certified. 
+
 Precise cutting and engraving, high speed and easy operation.  
+
 Material pass-through chassis design for large materials processing. 
-Reci Laser tube with extended lifetime of up to 10,000 hours
-Motorised 600mm x 900mm table with automatic focus system
+
+Reci Laser tube with extended lifetime of up to 10,000 hours.
+
+Motorised 600mm x 900mm table with automatic focus system.
+
 With optional rotary attachment, it can achieve fine engraving for various non-metal cylindrical and tubular materials. 
+
 Suitable for engraving and cutting a variety of non-metal materials.
 
 Applicable materials:
